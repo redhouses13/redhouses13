@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about music, lets talk!
 - 📫 How to reach me: ...
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I've been to over 30+ concerts!
 -->
